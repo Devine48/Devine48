@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Devine48
+- 👀 I created a deriv bot that does recovery on same stake.
+- 📫 How to reach me ...
+- davidisthedestroyer@gmail.com
+- contact me on how to purchase it 
